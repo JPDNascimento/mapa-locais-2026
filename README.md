@@ -1,0 +1,1 @@
+# mapa-locais-2026
